@@ -1,5 +1,5 @@
-# antonellalapolla
-### Hi there 🖖 I am Antonella 👇
+# Antonella Lapolla
+### Hi there 🖖 I am Antonella a Visual Designer👇
 
 
 - 🔭 I’m currently working on my website project
